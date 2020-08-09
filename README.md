@@ -11,7 +11,7 @@ https://i.imgur.com/KYQsGao.jpg
 Da mensagem de apresentação:
 https://i.imgur.com/bTEmJdW.jpg
 
-Da contra-capa (com endereço da empresa):
+Da contra-capa (com endereço postal da empresa):
 https://i.imgur.com/bihdliw.jpeg
 
 Do TK85:
