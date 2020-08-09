@@ -1,2 +1,5 @@
 # TK85
 MEUS VELHOS PROGRAMAS EM BASIC TK85
+
+### FOTOS DO MANUAL DO TK85
+https://imgur.com/gallery/9YISfIj
